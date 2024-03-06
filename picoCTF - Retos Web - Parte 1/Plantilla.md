@@ -1,8 +1,0 @@
-
-# Objetivo 
-
-
-# Solución 
-
-# Notas 
-
